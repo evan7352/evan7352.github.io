@@ -1,1 +1,4 @@
-## Hi, 我是芒果姊姊 ~
+## Hi, 我是芒果姊姊 范艾雯 ~
+
+![image](https://github.com/user-attachments/assets/f54da0ed-c6e5-4fe9-af96-42f140cb0ff3)
+### email: evan7352@icloud.com
