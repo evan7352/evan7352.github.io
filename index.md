@@ -2,7 +2,7 @@
 
 ![image](https://github.com/user-attachments/assets/f54da0ed-c6e5-4fe9-af96-42f140cb0ff3)
 
-#Work Experience
+## Work Experience
 1996.06-1998.01 Walter Electronics Co., Ltd.  Manager
 1998.02-2001.05 Honggu Technology Co., Ltd.   Production Manager
 2001.06-2003.06 Taipei Fubon Bank             Specialist
