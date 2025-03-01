@@ -4,7 +4,7 @@
 
 ## Work Experience
 #### 1996.06-1998.01 Walter Electronics Co., Ltd.  Manager
-#### 1998.02-2001.05 Honggu Technology Co., Ltd.   Production Manager
+#### 1998.02-2001.05 Panther Technology Co., Ltd.  Production Manager
 #### 2001.06-2003.06 Taipei Fubon Bank             Specialist
 #### 2003.09-NOW     Taiwan Business Bank          Assistant manager
 
