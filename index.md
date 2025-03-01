@@ -9,7 +9,8 @@
 #### 2003.09-NOW     Taiwan Business Bank          Assistant manager
 
 ## Certificates
-![image](https://github.com/user-attachments/assets/618fd4e1-ffb4-41b8-8b4d-a613cf3b719a)
+![image](https://github.com/user-attachments/assets/44582faf-2722-4cf9-be54-3fdc4c74c567)
+
 
 
 ### CONTACT INFO email: evan7352@gmail.com
